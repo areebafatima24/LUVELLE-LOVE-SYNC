@@ -134,7 +134,9 @@ Luvelle removes the *risk* from emotional honesty.
 ## 👥 Team Velora
 
 ✨ **Shaik Basheer Unnisa** – Team Leader
+
 ✨ **Areeba Fatima** – Team Member
+
 ✨ **Irfana Tabassum** – Team Member
 
 ---
